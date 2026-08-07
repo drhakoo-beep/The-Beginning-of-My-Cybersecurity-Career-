@@ -25,4 +25,4 @@ In response to this, I fulfilled my ethical duty and reported all evidence to th
 
 Code snippets are found in the files. 
 
-SENSITIVE DATA HAS BEEN CENSORED. THERE IS NO BLACKMAIL OR THREATS. 
+SENSITIVE DATA HAS BEEN CENSORED. THERE IS NO BLACKMAIL OR THREATS
